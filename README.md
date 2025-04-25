@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mahiii1113
-- 👀 I’m interested in Investing, Technology and Finance 
+- 👀 I’m interested in Investing, Technology, Crypto and Finance 
 - 🌱 I’m currently learning Computer Language 
 - 💞️ I’m looking to collaborate on Codeing
 - 📫 How to reach me email: mahithchowdary984@gmail.com
